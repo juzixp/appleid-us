@@ -4,9 +4,9 @@
 
 👉[**【每日更新 · 小火箭共享账号专区】**](https://docs.applexp.com/free-accounts/Shadowrocket)
 
-- 🔐 购买专属独享账号（有美区及多国 Apple ID） 👉[【点击前往】](https://juzixp.com)
+- 🔐 购买专属独享账号（有美区及多国 Apple ID） 👉[【点击前往】](https://shop.muooy.com)
 
-- 🌐 购买小火箭/美区共享账号入口 👉[【点击前往】](https://juzixp.com/buy/21)
+- 🌐 购买小火箭/美区共享账号入口 👉[【点击前往】](https://shop.muooy.com/buy/21)
 
 **📌 使用说明**
 仅供学习参考，请勿将账号用于违法用途！
